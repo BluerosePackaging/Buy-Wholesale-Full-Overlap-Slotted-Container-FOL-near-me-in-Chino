@@ -44,5 +44,5 @@ Bluerose Packaging provides high-performance **Full Overlap Slotted Containers (
 ---
 
 Protect your products with tough, reliable **Full Overlap Slotted Containers** from Bluerose Packaging.  
-Visit [bluerosepackaging.com](https://www.bluerosepackaging.com/product-category/boxes/) to request a quote or place your bulk order today.
+Visit [bluerosepackaging.com](https://www.bluerosepackaging.com/product/full-overlap-slotted-container-fol/) to request a quote or place your bulk order today.
 
